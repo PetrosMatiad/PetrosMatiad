@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PetrosMatiad
+- 👋 Hi, i’m Petros
 - 👀 I’m interested in reading , workin out , music , fashion and much more!
 - 🌱 I’m currently studying Informatics and technology at the University of Ionnina
 - ⚡ Fun fact: i stutter lol
